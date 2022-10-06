@@ -1,4 +1,4 @@
 
-I am Bless and highly favour
+#I am Bless and highly favour
 
 Jesus never fail me
